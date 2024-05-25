@@ -1,3 +1,5 @@
+![Capture_2024_05_25_05_15_27_982](https://github.com/outoftheworld8/JOKEROTPBOT/assets/170805660/f66a1179-55ab-4d65-98c3-dbcf8d5d0060)
+
 TELEGRAM CHANNEL
 =========================================================================
 https://t.me/wwsspam
